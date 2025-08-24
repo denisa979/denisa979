@@ -3,5 +3,7 @@
 
 
 💻 QA Engineer turned Java enthusiast
+
 🕵️ Lover of puzzles & coding challenges
+
 ✨ Breaking things just enough to make them better
