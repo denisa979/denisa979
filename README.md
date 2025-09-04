@@ -17,6 +17,6 @@
 
 Feel free to reach out if you're working on something exciting or just want to talk tech!
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/denisa-mutapcic)  
+- 💼 https://www.linkedin.com/in/denisa-mutapcic-a12951310/)  
 - 📫 Email: denisamutapcic@gmail.com
 
